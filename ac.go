@@ -11,3 +11,6 @@ KGF
 Googly
 Ramachari
 Paramathma
+Rangitaranga
+Ulidavaru Kandante
+Ratsasan
